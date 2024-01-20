@@ -1,0 +1,1 @@
+# HR-slider-photo-image
